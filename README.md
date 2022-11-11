@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Mimieliza2000
-- 👀 I’m interested in UX/UI Deisgn and front end development 
+- 👀 I’m interested in UX/UI Deisgn, front end development, and software development. 
 - 🌱 I’m currently graduting with a Computer Science major in May 2022
 - 💞️ I love video games, cooking, eating, painting, skateboarding, and coffee!!
 - 📫 How to reach me ... Mimstercx@gmail.com
